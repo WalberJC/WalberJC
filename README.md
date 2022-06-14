@@ -1,3 +1,5 @@
+😎 Trying to lern new things
+
 ##
 
 <div align="center">
