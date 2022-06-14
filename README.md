@@ -1,4 +1,5 @@
-## 😎 Trying to lern new things
+## 😎 Trying to learn something new
+
 
 <div align="center">
   <a href="https://github.com/rafaballerini">
